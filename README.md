@@ -1,3 +1,3 @@
 # test
 
-ça avance, on essaye et on perds pas espoir
+ça avance, on essaye et on perd pas espoir
